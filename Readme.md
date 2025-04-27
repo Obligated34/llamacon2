@@ -1,4 +1,4 @@
-# Llamacon 2.0 non wedding edition
+# Llamacon 2.0 non-wedding edition
 
 ## Attendees
 
@@ -26,8 +26,8 @@ all prices will be devided by the party count as trip in early July will be atte
 
 <details>
     <summary> pics n thoughts </summary>
-So this first one is a bit on the pricier side being ~2500 per family. It boasts a ton of options and would basically be the vacation itself. honestly the lagoon would probably take a back seat to this place and honestly it feels a bit excessive.
- 
+So this first one is a bit on the pricier side being ~2500 per family. It boasts a ton of options and would basically be the vacation itself. honestly the lagoon would probably take a back seat to this place and honestly it feels a bit excessive.<br>
+    
  <img src="image.png">
  <img src="image-1.png">
 
