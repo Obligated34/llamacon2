@@ -1,4 +1,4 @@
-# Llamacon 2.0 non wedding eddition
+# Llamacon 2.0 non wedding edition
 
 ## Attendees
 
@@ -26,7 +26,8 @@ all prices will be devided by the party count as trip in early July will be atte
 
 <details>
     <summary> pics n thoughts </summary>
-So this first one is a bit on the pricier side being ~2500 per family. It boasts a ton of options and would basically be the vacation itself. honestly the lagoon would probably take a back seat to this place and honestly it feels a bit excessive. 
+So this first one is a bit on the pricier side being ~2500 per family. It boasts a ton of options and would basically be the vacation itself. honestly the lagoon would probably take a back seat to this place and honestly it feels a bit excessive.
+ 
  <img src="image.png">
  <img src="image-1.png">
 
@@ -38,6 +39,7 @@ So this first one is a bit on the pricier side being ~2500 per family. It boasts
     <summary> pics n thoughts </summary>
 First off the pics here are awful, someone doesnt know how to give any scope of reference and stop taking pictures of sings that tell me how to live my life damnit
 But its a lot cheaper than Mr boujee and has an indoor pool of indeterminate size. but coming in at a total of 782 per person ts a fairly attractive price point. 
+
 <img src="image-2.png">
 <img src="image-3.png">
 
